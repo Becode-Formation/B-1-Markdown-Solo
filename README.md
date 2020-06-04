@@ -6,3 +6,7 @@ Décidé à __venger__
 Mais le *vampire* est maintenant très vieux.
 Le *samurai* est sûr de sa victoire.
 Ou peut-être est-il trop _confiant_.
+
+S'il lui faut partir du fait de sa vieillesse, il partira dans la gloire
+Mais qui oser l'affronter ? Un seul aura cet honneur : *Kakuraken le juste*
+Qui est-ce? Votre manque de culture me consterne...
