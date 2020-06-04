@@ -10,3 +10,5 @@ Ou peut-être est-il trop _confiant_.
 S'il lui faut partir du fait de sa vieillesse, il partira dans la gloire
 Mais qui oser l'affronter ? Un seul aura cet honneur : *Kakuraken le juste*
 Qui est-ce? Votre manque de culture me consterne...
+
+La confrontation entre **Kakuraken**, aussi juste que *juste le blanc*, et **Orkat**, maître du cerceau, pris fin dans la minute.Dans la ville de *Olkahem*:shinto_shrine:, entre insultes et croches-pieds, __*Orkat*__ sorti finalement vainceur:1st_place_medal:. Et ce sans défaire un lacet. :foot: :foot: :foot:
