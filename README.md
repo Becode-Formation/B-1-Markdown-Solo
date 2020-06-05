@@ -6,6 +6,7 @@ Décidé à __venger__
 
 Mais le *vampire* est maintenant très vieux.
 Le *samurai* est sûr de sa victoire.
+<<<<<<< HEAD
 Ou peut-être est-il trop _confiant_.
 
 Le combat commence par un _rituel_:
@@ -18,3 +19,6 @@ le samurai et le vampire courent l'un vers l'autre et ...
 =======
 Décidé à __venger__ 
 >>>>>>> parent of f67c4af... ajout des mes trois lignes
+=======
+Ou peut-être est-il trop _confiant_.
+>>>>>>> parent of c0fff20... ajout de Chris
