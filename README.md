@@ -12,3 +12,8 @@ Mais qui oser l'affronter ? Un seul aura cet honneur : *Kakuraken le juste*
 Qui est-ce? Votre manque de culture me consterne...
 
 La confrontation entre **Kakuraken**, aussi juste que *juste le blanc*, et **Orkat**, maître du cerceau, pris fin dans la minute.Dans la ville de *Olkahem*:shinto_shrine:, entre insultes et croches-pieds, __*Orkat*__ sorti finalement vainceur:1st_place_medal:. Et ce sans défaire un lacet. :foot: :foot: :foot:
+Le combat commence par un _rituel_:
+* salutation, signe de respect de l'adversaire
+* quelques mouvements de souplesse et échauffement
+* cris d'intimidation
+le samurai et le vampire courent l'un vers l'autre et ...
